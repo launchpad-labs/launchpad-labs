@@ -2,7 +2,7 @@
 - 👀 I’m interested in coffee
 - 🌱 I’m currently learning how to get free coffee
 - 💞️ I’m looking to collaborate on drinking coffee
-- 📫 How to reach me - buy me a coffee!
+- 📫 How to reach me - wave a coffee in front of me.
 
 https://www.buymeacoffee.com/launchpad
 - 
